@@ -1,5 +1,5 @@
 # 💫 About Me:
-Biomedical Engineer pursuing my Masters on Artificial Intelligence.<br>I'm currently working on bioinformatic pipelines applied to the first space genetics resarch line in the country.<br>Seeking to work on aerospace + AI projects.<br><br>Career facts: <br> 🚀 Aerospace Director at Women in Aeroespace and Aeronautic Industry (MIAA).<br> 🔬 Space Genetics Pioneer<br>                          <br>
+Biomedical Engineer pursuing my Masters on Artificial Intelligence.<br>I'm currently working on bioinformatic pipelines applied to the first space genetics resarch line in the country.<br>Seeking to work on aerospace + AI projects.<br><br>
 
 
 ## 🌐 Socials:
